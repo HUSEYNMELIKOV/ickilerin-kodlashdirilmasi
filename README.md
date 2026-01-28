@@ -1,0 +1,1 @@
+# ickilerin-kodlashdirilmasi
